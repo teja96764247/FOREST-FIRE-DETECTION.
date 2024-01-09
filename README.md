@@ -1,0 +1,1 @@
+Wildfires are an important phenomenon on a global scale, as they are responsible for large amounts of economic and environmental damage. These effects are being exacerbated by the influence of climate change
